@@ -1,0 +1,2 @@
+# wayan
+jurusan kimia
